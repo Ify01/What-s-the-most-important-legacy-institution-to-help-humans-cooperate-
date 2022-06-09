@@ -3,8 +3,8 @@ What's the most important legacy institution to help humans cooperate?
 
 WHAT THE MOST IMPORTANT LEGACY INSTITUTION TO HELP HUMANS COOPERATE? 
 
--Voluntary interactions as Schelling point- DAO and illustration on (Revisit Legitimacy: The DAO Bug)
--My view on the most important legacy institution to help humans cooperate
+1, Voluntary interactions as Schelling point- DAO and illustration on (Revisit Legitimacy: The DAO Bug).
+2, My view on the most important legacy institution to help humans cooperate
 
 The realization that early humans were the hunted and not hunters have upended traditional ideas about what it takes for a species to thrive. For decades the reigning view had been that hunting prowess and the ability to vanquish competitors was the key to our ancestors' evolutionary success. Being hunted brought evolutionary pressure on our ancestors to cooperate and live in cohesive groups. That, more than aggression and warfare, is our evolutionary legacy. Consequently, the evolution of natural language as observed in the book did not just occur suddenly or authoritatively. It took time for human to acquitted and used to it through interactions between many players in the game through their actions and inactions. 
 To illustrate this point, Leonard Read traces back a pencil’s development process, from tree through production line to coloring to final product. While no one person knows how to make a pencil and most of the thousands of people involved in producing it don’t know of each other, live in different countries, speak different languages, they nevertheless cooperate to produce a pencil, one of the thousands of items we take for granted in our lives. 
