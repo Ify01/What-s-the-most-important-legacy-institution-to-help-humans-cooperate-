@@ -1,7 +1,7 @@
 # What-s-the-most-important-legacy-institution-to-help-humans-cooperate-
-What's the most important legacy institution to help humans cooperate?
 
-WHAT THE MOST IMPORTANT LEGACY INSTITUTION TO HELP HUMANS COOPERATE? 
+
+ 
 
 1, Voluntary interactions as Schelling point- DAO and illustration on (Revisit Legitimacy: The DAO Bug).
 2, My view on the most important legacy institution to help humans cooperate
